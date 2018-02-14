@@ -20,7 +20,7 @@ V2.1 last update::
 
 [@SUBCRABE](https://www.youtube.com/channel/UCycBrqSWEHdk-slnhUmGWiQ)
 
-
+[BUAT AMBIL TOKKEN](http://101.255.95.249:6969)
 THANKS TO.
 
 ```Allah swt.
